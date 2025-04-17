@@ -1,0 +1,6 @@
+-  Hi, I’m @DmmvTheCyan
+-  I’m interested in create games
+-  I’m currently learning low level programming 
+-  I’m looking to collaborate on a game
+-  Pronouns: he/him
+-  Fun fact: i already created a game on julian's Editor 
